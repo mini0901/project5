@@ -1,5 +1,3 @@
 new file once again!
-no error too!!
-sir iske bad kya!
+no error too!
 okay!
-tfios! "the best movie ever!"
